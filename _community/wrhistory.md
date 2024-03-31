@@ -13,56 +13,56 @@ Original lists created by **[Nkitten](https://www.speedrun.com/user/Nkitten)**, 
 
 ## Any% World Record History  
 ### 2011  
-**[1:34:50](https://www.youtube.com/watch?v=TUsFLq4Rqkk)** by トーボウ on October 10, 2011  
+**[1:34:50](https://www.youtube.com/watch?v=TUsFLq4Rqkk)** by toobou on October 10, 2011  
 **[1:33:01](https://www.youtube.com/watch?v=bEDeCtvRmQ4)** by sincos on December 24, 2011(?)  
                                               
 ### 2012  
-**[1:32:49](https://www.youtube.com/watch?v=iK_NeKxUvEk)** by トーボウ on August 17, 2012  
+**[1:32:49](https://www.youtube.com/watch?v=iK_NeKxUvEk)** by toobou on August 17, 2012  
 1:32:31 by sincos on October 7, 2012  
-1:32:31 by トーボウ on November 8, 2012(?)  
-**[1:32:07](https://www.youtube.com/watch?v=zwtZP14VMrI)** by トーボウ on November 22, 2012  
-1:31:58 by トーボウ on December 29, 2012  
+1:32:31 by toobou on November 8, 2012(?)  
+**[1:32:07](https://www.youtube.com/watch?v=zwtZP14VMrI)** by toobou on November 22, 2012  
+1:31:58 by toobou on December 29, 2012  
                                               
 ### 2013  
-1:31:38 by トーボウ on February 15, 2013  
+1:31:38 by toobou on February 15, 2013  
 **[1:31:27](https://www.youtube.com/watch?v=ysryaRrgSXs)** by Samura1man on February 28, 2013  
-1:31:24 by トーボウ on March 9, 2013  
-1:31:23 by トーボウ on April 9, 2013  
+1:31:24 by toobou on March 9, 2013  
+1:31:23 by toobou on April 9, 2013  
 **[1:31:08](https://www.youtube.com/watch?v=1xCJbJYpeIs)** by Samura1man on July 27, 2013  
-**[1:30:45](https://www.youtube.com/watch?v=G0TVI8mb85U)** by トーボウ on August 17, 2013  
+**[1:30:45](https://www.youtube.com/watch?v=G0TVI8mb85U)** by toobou on August 17, 2013  
 **[1:30:02](https://www.youtube.com/watch?v=s0A8fO_td0o)** by Samura1man on September 3, 2013  
                          	                  
 ### 2014  
-**[1:29:50](https://www.youtube.com/watch?v=6s_r9xi1vtM)** by トーボウ on January 6, 2014  
+**[1:29:50](https://www.youtube.com/watch?v=6s_r9xi1vtM)** by toobou on January 6, 2014  
 **[1:24:24](https://www.youtube.com/watch?v=iOVu4-uwfuY)** by Samura1man on February 21, 2014  
 **[1:22:59](https://www.youtube.com/watch?v=0Biw-lnAQ7k)** by Paperario on February 21, 2014  
 1:22:35 by Samura1man on February 22, 2014  
-1:21:45 by トーボウ on February 22, 2014  
+1:21:45 by toobou on February 22, 2014  
 1:20:36 by Samura1man on February 22, 2014  
 **[1:20:32](https://www.youtube.com/watch?v=U4jcYzVZWg0)** by Samura1man on February 22, 2014  
-1:20:08 by トーボウ on February 23, 2014  
-**[1:19:34](https://www.youtube.com/watch?v=fiI5nwXoyGA)** by トーボウ on March 22, 2014  
+1:20:08 by toobou on February 23, 2014  
+**[1:19:34](https://www.youtube.com/watch?v=fiI5nwXoyGA)** by toobou on March 22, 2014  
 **[1:19:24](https://www.youtube.com/watch?v=FKzvq8_knjg)** by Stelzig on August 25, 2014  
 **[1:19:20](https://www.youtube.com/watch?v=57NZhAfkMXw)** by Samura1man on October 17, 2014  
-**[1:19:08](https://www.youtube.com/watch?v=De4wPCBdv3Q)** by トーボウ on October 18, 2014  
+**[1:19:08](https://www.youtube.com/watch?v=De4wPCBdv3Q)** by toobou on October 18, 2014  
                                               
 ### 2015  
 **[1:18:57](https://www.youtube.com/watch?v=F3gKzntjiuM)** by Kaffelon on January 14, 2015  
-1:18:50 by ヤマた on February 7, 2015  
-1:18:46 by トーボウ on February 8, 2015  
-1:18:35 by トーボウ on February 23, 2015  
+1:18:57 by Yamata0921 on February 7, 2015  
+1:18:53 by toobou on February 8, 2015  
+1:18:42 by toobou on February 23, 2015  
 \-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-  
-Times above on Reset Timing, Times below on File Select timing  
+Times above on Reset Timing, Times below on File Select timing(RT=FS+7)
 \-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-  
 **[1:18:29](https://www.youtube.com/watch?v=udvV01miBjc)** by Kaffelon on April 2, 2015  
 **[1:18:22](https://www.youtube.com/watch?v=x5SyyyrSQCI)** by AverageTrey on May 28, 2015  
 **[1:18:17](https://www.youtube.com/watch?v=-Fm-p6H0_K8)** by Kaffelon on June 12, 2015  
 **[1:18:12](https://www.youtube.com/watch?v=jZLS7JZ25c8)** by Kaffelon on June 28, 2015  
-**[1:17:58](https://www.youtube.com/watch?v=wwhbph1NOk0)** by ヤマた on July 16, 2015  
+**[1:17:58](https://www.youtube.com/watch?v=wwhbph1NOk0)** by Yamata0921 on July 16, 2015  
 **[1:17:55](https://www.youtube.com/watch?v=USXCpWmykac)** by Kaffelon on July 16, 2015  
 **[1:17:50](https://www.youtube.com/watch?v=CMitcQnWEjo)** by nindiddeh on July 24, 2015  
 **[1:17:39](https://www.youtube.com/watch?v=jJXAx5AvxOA)** by AverageTrey on August 11, 2015  
-**[1:17:38](https://www.youtube.com/watch?v=NSEOEZMNLCY)** by ヤマた on August 24, 2015  
+**[1:17:38](https://www.youtube.com/watch?v=NSEOEZMNLCY)** by Yamata0921 on August 24, 2015  
 **[1:17:32](https://www.youtube.com/watch?v=9r2ZLBQt0lk)** by AverageTrey on September 4, 2015  
 1:17:25 by トーボウ on September 22, 2015  
 **[1:17:20](https://www.youtube.com/watch?v=UNc5eFAvwoc)** by Bounceyboy on October 31, 2015  
@@ -70,7 +70,7 @@ Times above on Reset Timing, Times below on File Select timing
 **[1:16:49](https://www.youtube.com/watch?v=n0S-WEgZ_4Y)** by Bounceyboy on November 20, 2015  
   
 ### 2016  
-**[1:16:38](https://www.youtube.com/watch?v=y3gZFzwJuWQ)** by トーボウ on February 20, 2016  
+**[1:16:38](https://www.youtube.com/watch?v=y3gZFzwJuWQ)** by toobou on February 20, 2016  
 **[1:16:36](https://www.youtube.com/watch?v=yU-obYpMy80)** by Bounceyboy on April 5, 2016  
 **[1:16:25](https://www.youtube.com/watch?v=1Q6PXX2OeXI)** by nindiddeh on May 1, 2016  
 **[1:16:12](https://www.youtube.com/watch?v=-eiQoSEOD7c)** by Bounceyboy on May 12, 2016  
@@ -95,20 +95,26 @@ Times above on Reset Timing, Times below on File Select timing
 **[1:14:13](https://www.youtube.com/watch?v=j_bJUonZ-Jc)** by Weegee on December 28, 2019  
   
 ### 2020  
-1:14:04 by *Anonymous* on April 27, 2020  
+1:14:04 by Guy2308(Banned) on April 27, 2020  
 **[1:14:01](https://www.youtube.com/watch?v=Dpw2AjNavT4)** by nindiddeh on June 11, 2020  
 **[1:13:44](https://www.youtube.com/watch?v=ilwGUlLxT4E)** by nindiddeh on June 28, 2020  
   
-### 2021  
-1:13:42 by *Anonymous* on May 21, 2021  
-1:13:39 by *Anonymous* on May 27, 2021  
-1:13:30 by *Anonymous* on June 26, 2021  
-1:13:25 by *Anonymous* on July 3, 2021  
-1:13:23 by *Anonymous* on July 10, 2021  
-1:13:17 by *Anonymous* on August 1, 2021  
+### 2021
+All of these 2021 runs were removed before JJsrl beat nindiddeh's official record
+1:13:42 by Guy2308(Banned) on May 21, 2021  
+1:13:39 by Guy2308(Banned) on May 27, 2021  
+1:13:30 by Guy2308(Banned) on June 26, 2021  
+1:13:25 by Guy2308(Banned) on July 3, 2021  
+1:13:23 by Guy2308(Banned) on July 10, 2021  
+1:13:17 by Guy2308(Banned) on August 1, 2021  
   
 ### 2022  
-  
+**[1:13:30](https://youtu.be/7VIuUkDegzo?si=0YskcGI-Y94WHKxx)** by JJsrl on May 24, 2022
+
+### 2023
+**[1:13:23](https://youtu.be/kBS7PkPz1Ss?si=MB_wdqHzaOCMynqQ)** by JJsrl on July 16, 2023
+**[1:13:17](https://youtu.be/9Y8FMwZsAIs?si=YrM2iTUMcdtBwxYs)** by toobou on July 30, 2023
+**[1:13:08](https://youtu.be/U7o5L7720_0?si=dw8DCE8Ot8Vyeyna)** by JJsrl on August 9, 2023
   
 ## 120 Shines World Record History  
 ### 2007	  
@@ -116,17 +122,17 @@ Times above on Reset Timing, Times below on File Select timing
   
 ### 2011	  
 4:36:08 by FAXv2≒Fさん on March 28, 2011  
-4:32:32 by 紺空 on April 10, 2011  
+4:32:32 by konkuu on April 10, 2011  
   
 ### 2012	  
 **[4:25:42](https://www.youtube.com/playlist?list=PL138B0E7096B89417)** by Nkiller on March 3, 2012  
-**[4:21:07](https://www.youtube.com/playlist?list=PL4A82CDBD50991DCD)** by 紺空 on March 11, 2012  
-4:20:27 by 紺空 on March 17, 2012  
+**[4:21:07](https://www.youtube.com/playlist?list=PL4A82CDBD50991DCD)** by konkuu on March 11, 2012  
+4:20:27 by konkuu on March 17, 2012  
 **[4:11:22](https://www.youtube.com/watch?v=U_z-btFjVME)** by THEチキン on May 14, 2012  
 **[4:09:52](https://www.youtube.com/playlist?list=PLezwa8DS9ZVlpiZMA34rak-yLf2hw_g0y)** by Nkiller on September 14, 2012  
 **[4:09:50](https://www.youtube.com/watch?v=fQ_T71eKeRM)** by icedwindowsil on September 20, 2012  
 **[4:00:33](https://www.youtube.com/watch?v=EcITw-2xaYM)** by THEチキン on September 22, 2012  
-**[3:57:54](https://www.twitch.tv/videos/47738720)** by Samura1man on September 23, 2012 [Part 2](https://www.twitch.tv/videos/47736242)   
+**[3:57:54](https://youtu.be/EMpBmL3zOX4?si=tRsNc9aXeBq_33Ql)** by Samura1man on September 23, 2012  
 **[3:57:47](https://www.youtube.com/watch?v=_7VyAv-OQVI)** by THEチキン on October 13, 2012  
 3:56:14 by Samura1man on October 23, 2012  
 3:56:08 by Samura1man on October 24, 2012  
@@ -151,10 +157,10 @@ Times above on Reset Timing, Times below on File Select timing
 **[3:25:46](https://www.youtube.com/watch?v=nl4KsPB2Pe0)** by stelzig on January 31, 2014  
 3:25:27 by stelzig on March 25, 2014  
 **[3:24:40](https://www.youtube.com/watch?v=3vkUb03SIqs)** by stelzig on May 13, 2014  
-**[3:23:23](https://www.youtube.com/watch?v=h_e1q00LQS4)** by ヤマた on June 6, 2014  
+**[3:23:23](https://www.youtube.com/watch?v=h_e1q00LQS4)** by Yamata0921 on June 6, 2014  
 **[3:22:29](https://www.youtube.com/watch?v=3PFZarsBvUA)** by stelzig on July 22, 2014  
 **[3:22:16](https://www.youtube.com/watch?v=c127YEyeJ5Y)** by AverageTrey on October 24, 2014  
-**[3:21:15](https://www.youtube.com/watch?v=8OXWQItC18I)** by ヤマた on November 3, 2014  
+**[3:21:15](https://www.youtube.com/watch?v=8OXWQItC18I)** by Yamata0921 on November 3, 2014  
 **[3:20:22](https://www.youtube.com/watch?v=GukXEzDwmYE)** by AverageTrey on November 20, 2014  
 **[3:19:17](https://www.youtube.com/watch?v=fXF1YeZWWSQ)** by stelzig on November 23, 2014  
 \-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-\-  
@@ -164,9 +170,9 @@ Times above on Reset Timing, Times below on File Select timing
   
 ### 2015	  
 **[3:15:22](https://www.youtube.com/watch?v=YipmdKJk-Kg)** by AverageTrey on February 21, 2015  
-**[3:15:06](https://www.youtube.com/watch?v=9DfGa7ADtUo)** by ヤマた on March 19, 2015  
+**[3:15:06](https://www.youtube.com/watch?v=9DfGa7ADtUo)** by Yamata0921 on March 19, 2015  
 **[3:13:58](https://www.youtube.com/watch?v=9uvBWXKT3Gg)** by AverageTrey on March 27, 2015  
-**[3:13:02](https://www.youtube.com/watch?v=p_CMvxPGcL8)** by ヤマた on July 5, 2015  
+**[3:13:02](https://www.youtube.com/watch?v=p_CMvxPGcL8)** by Yamata0921 on July 5, 2015  
 **[3:12:03](https://www.youtube.com/watch?v=3RPFPd-0ClI)** by AverageTrey on July 15, 2015  
 **[3:10:19](https://www.youtube.com/watch?v=SfkzPoNdiwI)** by AverageTrey on August 4, 2015  
 **[3:10:17](https://www.twitch.tv/videos/31140517)** by AverageTrey on December 21, 2015  
@@ -174,8 +180,8 @@ Times above on Reset Timing, Times below on File Select timing
 ### 2016	  
 **[3:10:00](https://www.youtube.com/watch?v=z2LyamdTiXQ)** by AverageTrey on January 12, 2016  
 **[3:09:56](https://www.youtube.com/watch?v=hXYVOfxHL_M)** by AverageTrey on February 13, 2016  
-**[3:09:47](https://www.youtube.com/watch?v=qXLL-PUMpfY)** by ヤマた on March 29, 2016  
-**[3:08:05](https://www.youtube.com/watch?v=WLBOwSJmdR8)** by ヤマた on April 18, 2016  
+**[3:09:47](https://www.youtube.com/watch?v=qXLL-PUMpfY)** by Yamata0921 on March 29, 2016  
+**[3:08:05](https://www.youtube.com/watch?v=WLBOwSJmdR8)** by Yamata0921 on April 18, 2016  
 **[3:07:37](https://www.youtube.com/watch?v=_FYZu8YFK_M)** by nindiddeh on August 12, 2016  
 **[3:06:33](https://www.youtube.com/watch?v=tF5dV-sfEUI)** by AverageTrey on August 16, 2016  
 **[3:05:23](https://www.youtube.com/watch?v=LDfssIR8Q_I)** by nindiddeh on August 26, 2016  
@@ -195,7 +201,7 @@ Times above on Reset Timing, Times below on File Select timing
 **[2:59:58](https://www.youtube.com/watch?v=FCBS9vX6hsE)** by AverageTrey on January 26, 2018  
   
 ### 2019  
-**[2:59:50](https://www.youtube.com/watch?v=BbDJSn_kv8o)** by Nanashi on January 26, 2019  
+**[2:59:50](https://www.youtube.com/watch?v=BbDJSn_kv8o)** by Nanashi745 on January 26, 2019  
 **[2:59:50](https://www.youtube.com/watch?v=Ygy2vM-Cn2A)** (Tie) by Paperario on August 15, 2019  
 **[2:59:20](https://www.youtube.com/watch?v=WBKDpLa2FQU)** by Nanashi on August 27, 2019  
 **[2:58:29](https://www.youtube.com/watch?v=Oh88dv14xO0)** by Nanashi on August 29, 2019  
@@ -211,9 +217,24 @@ Times above on Reset Timing, Times below on File Select timing
 **[2:54:57](https://www.youtube.com/watch?v=YHkJXbeMUvk)** by nindiddeh on December 17, 2020  
 **[2:54:28](https://www.youtube.com/watch?v=q1XOwHO4374)** by nindiddeh on December 29, 2020  
   
-### 2021  
-2:54:04 by *Anonymous* on September 30, 2021  
+### 2021 
+This next WR was beaten after Guy2308 got banned
+2:54:04 by Guy2308(banned) on September 30, 2021
+**[2:53:57](https://youtu.be/bOOZT3IpomE?si=06kVikCp89OQrmI7)** by sblectric on November 1, 2021
+2:53:42 by Guy2308(banned) on December 8, 2021(unverified)
   
-### 2022  
-**[2:53:16](https://www.youtube.com/watch?v=ZDlN0Y-88A4)** by SB_runs on November 30, 2022  
+### 2022
+**[2:53:55](https://youtu.be/byuCjvEcmlc?si=Jcf0HV6D0z_sIst1)** by ShadowMario27 on October 8, 2022
+**[2:53:16](https://www.youtube.com/watch?v=ZDlN0Y-88A4)** by sblectric on November 30, 2022
+
+### 2023
+**[2:52:41](https://youtu.be/N8cyG1M_uho?si=0-q28C_iQXb8KZ_R)** by sblectric on February 11, 2023
+**[2:52:36](https://www.twitch.tv/videos/1873286460?t=0h0m1s)** by Nanashi745 on July 16, 2023
+**[2:52:31](https://youtu.be/U7LDjVA4gWE?si=3H0Iwp5k3JkUKTC4)** by sblectric on August 7, 2023
+**[2:52:26](https://youtu.be/UTXwA3VXGH0?si=KJFBIlyKQWzAgfne)** by sblectric on August 12, 2023
+**[2:52:24.63](https://www.twitch.tv/videos/1946543871?t=0h0m1s)** by Nanashi745 on October 9, 2023
+
+### 2024
+**[2:52:24.23](https://youtu.be/O-uc-up7-B4?si=mCCIPnnnuPFAYi-C)** by sblectric on January 12, 2024
+**[2:51:34](https://www.twitch.tv/videos/2039142966?t=0h0m1s)** by Nanashi745 on January 21, 2024
   
